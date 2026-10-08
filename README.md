@@ -63,7 +63,7 @@
   <p> Under 10 ok if already moots </p>
   <p> Melodraco shippers im so sorry bro i dont like this ship i see them was frenemies  </p>
   <p>Forsaken , Dandys world players . I think you can understand why ; ok if moots </p>
-  <p>Draco x Keni shippers the ship just feels wrong to me im sorry </p>
+  <p>Draco x Kenji shippers the ship just ticks me off it feels awkward im sorry </p>
   <p>Beast x Ancient . Burningcheese shippers DNI because the new update implied she was a minor when burning spice wasnt corrupted.</p>
   <p> Roleplayers , i dont mind you guys you guys are cool but i dont really wanna roleplay ships </p>
 </details>
