@@ -1,4 +1,6 @@
 # WILL BE WORKED ON SOON
+<img width="1351" height="440" alt="Untitled203_20261008193657" src="https://github.com/user-attachments/assets/f4fb9ada-e8e9-4e2d-a00b-eb7d54b27857" />
+
 <p align="center"> not selfshipping chester because my classmate kins him , + im close with them😭✌️
 </p>
 <table align="center">
@@ -14,6 +16,7 @@
   </tr>
 </table>⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
+<img width="1080" height="520" alt="Untitled202_20261008193128" src="https://github.com/user-attachments/assets/a105edeb-903f-4592-8d91-97abd9788719" />
 
 
   
