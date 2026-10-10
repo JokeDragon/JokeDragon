@@ -62,7 +62,7 @@
 </summary>
  <p>You dislike my favourite characters , i wouldnt mind if we’re moots.</p>
  <p>People who dislike Lumi due to her getting in the way of any draco ship .</p>
- <p>You bash me for liking ships like Draco x Chester instead of Melodie x Draco</p>
+ <p>You bash me for liking ships like Draco x Chester,please let me ship what i want. Im not a fujoshi that goes like “Dralumi,Melodraco DNI” and then proceed to say “I LOVE DRASTER” no shit sherlock im not like that pls</p>
   <p> Under 10 ok if already moots </p>
   <p> Melodraco shippers im so sorry bro i dont like this ship i see them was frenemies  </p>
   <p>Forsaken , Dandys world players . I think you can understand why ; ok if moots </p>
