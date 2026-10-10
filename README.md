@@ -12,6 +12,7 @@
       $\color{#bf023f}{\normalsize{\texttt{🌙 = dniuf / afk (mostly afk ;)}}}$ <br>
       $\color{#980139}{\normalsize{\texttt{⛔ = very busy , multitasking ,}}}$ <br>
       $\color{#ff0000}{\normalsize{\texttt{Draco yumes iwec because of something utterly ridiculous which happened . }}}$ <br>
+      $\color{#ff0000}{\normalsize{\texttt{Chesdraco , Draster , Dragonbell WHATEVER IT IS shipper}}}$ <br>
     </td>
   </tr>
 </table>⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
