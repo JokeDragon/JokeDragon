@@ -1,7 +1,7 @@
 # WILL BE WORKED ON SOON
 <img width="1351" height="440" alt="Untitled203_20261008193657" src="https://github.com/user-attachments/assets/f4fb9ada-e8e9-4e2d-a00b-eb7d54b27857" />
 
-<p align="center"> not selfshipping chester because my classmate kins him , + im close with them😭✌️
+<p align="center"> ill reconsider yumeshipping
 </p>
 <table align="center">
   <tr>
